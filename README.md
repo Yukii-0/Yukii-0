@@ -1,8 +1,9 @@
-- 👋 Hi, I’m @Yukii-0
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- ✨|| Ela/Ele
+- ✨|| 13y
+- ✨|| ISFP
+- ✨|| Insta: _ yukii.0
+- ✨|| TikTok: @yukii.o
+- ✨|| Preciso de um gato =/
 
 <!---
 Yukii-0/Yukii-0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
