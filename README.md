@@ -1,8 +1,8 @@
-- ✨|| Ela/Ele
-- ✨|| 13y
-- ✨|| ISFP
-- ✨|| Insta: _ yukii.0
-- ✨|| TikTok: @yukii.o
+- ✨|| Ela/Ele ♡
+- ✨|| 13y  ♡
+- ✨|| ISFP  ♡
+- ✨|| Insta: _ yukii.0  ♡
+- ✨|| TikTok: @yukii.  ♡
 - ✨|| Preciso de um gato =/
 
 <!---
